@@ -7,4 +7,4 @@ Probably because those words can also describe me.
 
 100% of 🐮 [No Meat Today](https://nomeat.today) and 🐠 [Tortuba](https://tortuba.com).
 
-Follow me on 🐣 twitter [@sowenjub](https://twitter.com/sowenjub) or 🐘 [@sowenjub@mastodon.social](https://mastodon.social/web/accounts/1133681#)
+Follow me on 🐣 twitter [@sowenjub](https://twitter.com/sowenjub) or 🐘 mastodon [@sowenjub@mastodon.social](https://mastodon.social/web/accounts/1133681#)
